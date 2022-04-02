@@ -1,0 +1,5 @@
+John, Ben and Bob are all racing each other to see who is the fastest. John and Ben think that Bob is the least likely to win so they see it as a competition between themselves
+and not Bob. Bob gets offended by what they said about him and is going to try his hardest to win the race. The race starts and to Bob's surprise, John and Ben sprint ahead
+of him within the first few seconds. Bob did not know of their speed and tries to keep up. John and Ben eventually get exhausted because of how much they sprinted and Bob gets
+closer and closer to passing them. The last 100 feet of the race come by and Bob overtakes John and Ben. They were very surprised because they did not think Bob would come back
+from being so far behind. Bob celebrates his victory and tells John and Ben to never underestimate him. 
